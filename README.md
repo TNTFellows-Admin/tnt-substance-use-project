@@ -18,7 +18,9 @@ Problem: How might we use data and technology to reduce substance use risk in Ki
 
 ## Expectations
 This pilot program is only a 5-10 hour monthly commitment. Manage your time and ask for help when you need it. 
+
 Collaborate with your teammates. This may require you to identify timeframes to do a bi-weekly call or sync over a Teams channel. 
+
 Please provide feedback! We are doing something new and can't improve without your insights. 
 
 
